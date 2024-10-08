@@ -1,0 +1,1 @@
+Estoy muy estresado por mi tonta computadora 
